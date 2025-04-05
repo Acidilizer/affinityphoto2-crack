@@ -1,0 +1,1 @@
+# affinityphoto2-crack
